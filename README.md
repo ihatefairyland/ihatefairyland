@@ -1,16 +1,11 @@
-## Hi there 👋
+## greetings huzz
+call me *hue* or *pareo*<br/>
+made this primarily for ponytown teehee
 
-<!--
-**ihatefairyland/ihatefairyland** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i usually sit in the dandy's world area and make skins, feel free to cuddle/hide !!<br/>
+i don't really know how to talk to people so i will be very dry if you interact<br/>
+don't rp with me!!! i am only cosplaying<br/>
+will add more info later<br/>
+<br/>
+### socials
+[bluesky](https://bsky.app/profile/snowclowne.bsky.social) [tiktok](https://www.tiktok.com/@frutapastel)
