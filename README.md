@@ -9,4 +9,4 @@ don't rp with me!!! i am only cosplaying
 will add more info later<br/>
 <br/>
 ### socials
-[bluesky](https://bsky.app/profile/snowclowne.bsky.social) [tiktok](https://www.tiktok.com/@frutapastel)
+[strawpage](https://pareism.straw.page) [twitter](https://x.com/nonexistanttaco) [bluesky](https://bsky.app/profile/snowclowne.bsky.social) [tiktok](https://www.tiktok.com/@frutapastel) 
